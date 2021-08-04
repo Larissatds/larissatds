@@ -1,4 +1,4 @@
-# Hi 🙋‍♀️ I'm Larissa
+# Hi, I'm Larissa 🙋‍♀️
 
 <div>
 <a href="https://github.com/Larissatds">
